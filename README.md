@@ -1,2 +1,0 @@
-# norlynpiquero.github.io
-Project
